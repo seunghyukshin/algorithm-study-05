@@ -1,1 +1,1 @@
-# algorithm-study-05
+SolvingClub link: https://swexpertacademy.com/main/talk/solvingClub/clubView.do?solveclubId=AXAVeyR6ZpMDFAXq
